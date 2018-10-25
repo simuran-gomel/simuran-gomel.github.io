@@ -1,1 +1,1 @@
-# simuran-gomel.github.io
+# simuran-gomel
